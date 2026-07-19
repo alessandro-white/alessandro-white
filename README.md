@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for help with **Software development & DevOps**
 
-- 📫 How to reach me **https://x.com/aless4ndrodev**
+- 📫 How to reach me X **↓**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
